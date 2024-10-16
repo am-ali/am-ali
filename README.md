@@ -3,5 +3,5 @@
 - 🌱 I’m currently doing bachelors in software engineering from National usniversity of Computing and Emerging sciences, Islamabad, Pakistan.
 - 💞️ I’m looking to collaborate on Open source projects to build up my portfolio.
 - 📫 You can reach out to my through email :i222685@nu.edu.pk
-- 😄 Pronouns: He
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: hehe no fun facts, i'm a very boring person.
