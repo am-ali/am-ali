@@ -2,7 +2,7 @@
 - 👀 My interests include coding, playing puzzles and watching anime.
 - 🌱 I’m currently doing bachelors in software engineering from National usniversity of Computing and Emerging sciences, Islamabad, Pakistan.
 - 💞️ I’m actively looking for a part time job.
-- 📫 You can reach out to my through email :i222685@nu.edu.pk
+- 📫 You can reach out to my through email : mf3579753@gmail.com
 - 😄 Pronouns: He/Him
 
 ## 🧾 Totally Real Certifications
